@@ -29,3 +29,11 @@ TXtelsig VCO features:
 
 
 ![1122](https://github.com/user-attachments/assets/13545541-ae25-4da0-aac8-49b7e045ad45)
+
+
+![Screenshot 2024-12-30 232523](https://github.com/user-attachments/assets/0d19b8b8-acdc-45e2-b045-f2a35152898d)
+
+
+
+![Screenshot 2024-12-30 232705](https://github.com/user-attachments/assets/e07fc438-c8c0-428b-93fb-1c378683aa19)
+
